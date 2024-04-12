@@ -6,6 +6,8 @@ ___
 
 ___
 
+<img src="https://github.com/RobertJictor/cash-machine/blob/main/cm.png"/>
+
 +  Cash Machine Casino is one of the best sweepstakes platforms that BitBetWin offers
 
 +  Consider Cash Machine online casino if you’re searching for a platform that checks all the boxes for 70+ cutting-edge casino games for money, many bonuses, and exclusive offers
@@ -16,3 +18,4 @@ ___
 
 ## ***Just use the Cash Machine 777 online casino download to install the app, sign into your account and start playing***
 
+<img src="https://github.com/RobertJictor/cash-machine/blob/main/dl.png"/>
